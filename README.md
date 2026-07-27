@@ -7,4 +7,4 @@
 
 ###### <p align="center"> or is this salvation? heart, i offer you!
 ###### <p align="center"> to your name, to mourn you
-###### <p align="center"> [wip](https://donotfearoblivion.straw.page)
+###### <p align="center"> ${{\color{#7799cc}\small{\texttt{  ⚙\\ \}}}}$
